@@ -9,6 +9,10 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=calmmychild&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ec3636&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+![](https://cdn.discordapp.com/attachments/777105772512542720/1509487839589695528/Untitled72_20260528022537.png?ex=6a195b99&is=6a180a19&hm=7a234c0dff6a3202cab656d5fae93eed2daa3705e86a5c41b83709cac3eb10a6&)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI LOVE MY WIFE WE ARE IRL VANTAGE AND SPARROW REAL I LOVE HER I LOVE MY WIFE!!!!!!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤart by me ;p
+
 ![](https://64.media.tumblr.com/8aecbf0eb5c9c582d9fcdcc877397196/17664607f4ffb203-ce/s250x400/19fea34929036bd4bcad302f95bccb9d36f37a94.gif)
 ![](https://64.media.tumblr.com/3226232d4ad9a8fed1eb91924af87e5f/dbd8b1e992a56a49-ea/s250x400/3250af1936a35921866516db122adec36de38b03.gifv)
 ![](https://64.media.tumblr.com/c62a19d08a0dadf9fcb06d29963e49c1/dbd8b1e992a56a49-91/s250x400/6f6ec3666b5ec1458ff8c390a6b7183252c10d2f.gifv)
